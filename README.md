@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning programme languages
 - 📫 How to reach me ( let me alone )
 - 😄 Pronouns: (I don't have)
-- ⚡ Fun fact: I don't have a girlfriend
 - 🤍 To be close to my hearth , Just love Real Madrid and I will love you back so much 
 
 <!---
